@@ -1,8 +1,8 @@
 # rsschool-cv
 
-## Ina FK
+## Ina Flaryanovich-Kukharava
 
-*email: inajob@tut.by*
+*email: ina.flaryanovich@gmail.com*
 
 *discord: @inafk*
 
